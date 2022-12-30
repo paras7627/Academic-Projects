@@ -1,1 +1,1 @@
-### Projects
+### Academic Projects
